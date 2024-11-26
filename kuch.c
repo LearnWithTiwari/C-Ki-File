@@ -1,1 +1,0 @@
-jjitne baje jate hai 
